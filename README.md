@@ -1,3 +1,3 @@
 # Last
 
-My first documentation.
+My first documentation. Here i will be writing everything about my project.
