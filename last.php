@@ -7,6 +7,8 @@ gwegwegeôm
 gwegwe
 hwehew
 
+gwôlmhew;
+
 yeyerye ureure
 
 gweher
