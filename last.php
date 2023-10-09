@@ -6,7 +6,8 @@ iowehweioomlhkwe
 lnknikoher
 gwegwegeôm
 goičwihwehew
-gwegwe
+gwegwepomweôlb
+poôweôhew
 hwehew
 
 gwôlmhew;
