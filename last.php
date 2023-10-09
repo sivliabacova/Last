@@ -7,6 +7,8 @@ lnknikoher
 gwegwegeôm
 goičwihwehew
 gwegwepomweôlb
+hwiojhlewk
+lihwkkhwklmeh
 poôweôhew
 hwehew
 
