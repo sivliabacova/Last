@@ -17,6 +17,7 @@ gwôlmhew; wbreh
 grehehremnmejjre
 gezwgzrwgzz
 yeyggewlngw
+gwekhnwlehwe
 hjvhgkwelkwenhwe
 hkbizibierye ureure
 
