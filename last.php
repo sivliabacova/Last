@@ -5,6 +5,7 @@ mkhkmôhmôe wehewhew
 iowehweioomlhkwe
 lnknikoher
 kehblwekhewkn
+hôlmwekhnwlnhkwe
 khmbewlkhwnhjwe
 gekwjhnwjekjnhwejk
 lghnwejnhknwew
