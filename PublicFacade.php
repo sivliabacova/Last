@@ -10,6 +10,7 @@ class BaseController extends AbstractController
             klwhlewhewlnkhkl
             &knemlčkhnwjklehwe
             gekljnwjhjwnjwh
+            ôknmlekhnelnghkwnelkhmn
             gkwenhkwejwek
             gbsrdtrfjz
             lhwnehneknmje
