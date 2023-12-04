@@ -10,6 +10,7 @@ khmwkhklwekhewe
 ôlewmhkwemhkwe
 gôlmhkewmhwmelô
 mewhwenhwelhlwne
+hôwmkhwelhwekl
 ewôlmhwklhwke
 eblwkhmwhklwemhkle
 gkewhlewkhwr
