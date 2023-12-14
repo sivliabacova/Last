@@ -13,6 +13,7 @@ glkwehklwenlhwe
 elw,hlôwehmlwemlô
 ewlkhlekwngkewklnwhe 
 hklewmkhnwel
+eôlwmhlwôehmlwemôl
 leôkmwhlweôlmewlmô
 hlkewnhkewnlkhkwň
 khmwkhklwekhewe
