@@ -10,6 +10,7 @@ hwle,hôlwmehwôel
 hlkewlhwenhkwehklewk
 hewklmhlwengwenlhew
 glkwehklwenlhwe
+elw,hlôwehmlwemlô
 ewlkhlekwngkewklnwhe 
 hklewmkhnwel
 leôkmwhlweôlmewlmô
