@@ -40,6 +40,8 @@ gklmwekhlwnehwe,
 lenwkljhklwelkhnwe
 ôkhewmlkhwehkwe
 hkewklhwlnehwek
+hômewôhwe 
+hkwme khkwehkôw
 ehklwnhwehnwekjgkwhelknwhlwe
 hlewmhklmwlhkwenkh
 gôweôlhmwelhmwke
