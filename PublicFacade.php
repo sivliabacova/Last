@@ -11,6 +11,7 @@ class BaseController extends AbstractController
             &knemlčkhnwjklehwe
             gekljnwjhjwnjwh
             ôknmlekhnelnghkwnelkhmn
+            hewhmklewkhwekl
             gepúkhowrpkheopkw
             gkwenhkwejwek
             gbsrdtrfjz
